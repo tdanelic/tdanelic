@@ -1,4 +1,9 @@
-## Bem-vindo(a) ao perfil de tdanelic 😁
+## Bem-vindo(a) ao perfil de tdanelic  ![image](https://user-images.githubusercontent.com/123215410/215837543-4864ea93-e8f1-4aba-9561-dc5bc4bdf87f.png)
+![image](https://user-images.githubusercontent.com/123215410/215838583-f88d3671-2c8a-493b-a7ad-695029c71329.png)
+
+
+
+
 
  <div>
    <a href="https://github.com/tdanelic">
